@@ -1,1 +1,1 @@
-# 20230911-Equipo10
+# Brenda Karol Ibarra Carbajal
